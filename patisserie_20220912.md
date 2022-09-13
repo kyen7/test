@@ -12,7 +12,9 @@ Sunday 8am - Semi-finals
 Sunday 12pm - Finals
 
 ## Matches
-- Midlothian Tennis Club (clay courts) 3650 Brandermill Pkwy, Midlothian, VA 23112 ([map link](https://goo.gl/maps/28ge8sN9RtD2u3uH9))
+- **Midlothian Tennis Club** (clay courts) 
+	- 3650 Brandermill Pkwy, Midlothian, VA 23112 
+	- [map link](https://goo.gl/maps/28ge8sN9RtD2u3uH9)
 - Players will receive texts containing court assignments and link to report scores 
 - Only the winner of the match reports scores
 - Matches are NO AD scoring, serve gender-to-gender on deuce points, and 10-point tiebreak in place of a 3rd set (win by 2)
