@@ -2,9 +2,13 @@
 
 ## Schedule
 Friday 8am - Richmond Avery
+
 Friday 2pm - Howard C. Lee
+
 Saturday 10am - Frederick
+
 Sunday 8am - Semi-finals
+
 Sunday 12pm - Finals
 
 ## Matches
@@ -20,8 +24,12 @@ Sunday 12pm - Finals
 	- Midlothian HS (6mi, 6 courts) [pin](https://goo.gl/maps/pfTnNtsfbkGF63LA6)
 
 ## Airbnb
+
 Address:
-Check-in ?, check-out ?
+
+Check-in ?
+
+Check-out ?
 
 
 
