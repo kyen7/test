@@ -5,7 +5,7 @@ Friday 8am - Richmond Avery
 
 Friday 2pm - Howard C. Lee
 
-Saturday 10am - Frederick
+Saturday 10am - Frederick 
 
 Sunday 8am - Semi-finals
 
@@ -19,7 +19,7 @@ Sunday 12pm - Finals
 - Only the winner of the match reports scores
 - Matches are NO AD scoring, serve gender-to-gender on deuce points, and 10-point tiebreak in place of a 3rd set (win by 2)
 - Matches can start up to 30 min before official start time
-- Warm-up courts
+- Warm-up courts (distance to match site)
 	- Swift Creek MS (1mi, 4 courts) [pin](https://goo.gl/maps/gS8gYs86r7eJkw2A7)
 	- Clover Hill HS (1.5mi, 6 courts) [pin](https://goo.gl/maps/4aFwxcAQRYPo7dFU6)
 	- Midlothian MS (7mi, 3 courts) [pin](https://goo.gl/maps/zYGhJmviJjzh4SCP7)
