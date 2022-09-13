@@ -2,9 +2,7 @@
 
 ## Schedule
 Friday 8am - Richmond Avery
-
 Friday 2pm - Howard C. Lee
-
 Saturday 10am - Frederick
 
 Sunday 8am - Semi-finals
