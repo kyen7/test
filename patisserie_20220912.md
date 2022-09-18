@@ -34,8 +34,3 @@ Address: 4421 Old Hundred Road South, Midlothian, VA 23112 ([map link](https://g
 Check-in: 4pm
 
 Check-out: 11am
-
-https://tennislink.usta.com/Leagues/Main/StatsAndStandings.aspx?t=R-17&search=albert%20teng&OrgURL=https://tennislink.usta.com/Leagues/Common/Default.aspx#&&s=10%7c%7c83850%7c%7c124994%7c%7c2022%7c%7c20
-
-
-
