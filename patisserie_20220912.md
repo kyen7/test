@@ -29,7 +29,7 @@ Sunday 12pm - Finals
 
 ## Airbnb
 
-Address: 4421 Old Hundred Road South, Midlothian, VA 23112 ([map link](https://goo.gl/maps/GPow25DVWFRvLVae7))
+Address: 4421 Old Hundred Road South, Midlothian, VA 23112 ([map link](https://goo.gl/maps/GPow25DVWFRvLVae7) | [airbnb listing](https://www.airbnb.com/rooms/557265024316491405) )
 
 Check-in: 4pm
 
