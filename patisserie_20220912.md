@@ -22,7 +22,7 @@ Sunday 11am - Finals
 - Matches are NO AD scoring, serve gender-to-gender on deuce points, and 10-point tiebreak in place of a 3rd set (win by 2)
 - Matches can start up to 30 min before official start time.
 - Live standings [link](https://tennislink.usta.com/Leagues/Main/StatsAndStandings.aspx?t=10&SearchType=20&FlightID=DB00F1FBA9D0A926A5042B6A&SubFlightID=DB0011DC1390B93AE2D94D7A7908AFBE5D&CYear=2022)
-- Live scoreboard ([link](https://masusta.tiny.us/masscores))
+- Live scoreboard [link](https://masusta.tiny.us/masscores)
 - Warm-up courts (distance to match site)
 	- Swift Creek MS (1mi, 4 courts) [pin](https://goo.gl/maps/gS8gYs86r7eJkw2A7)
 	- Clover Hill HS (1.5mi, 6 courts) [pin](https://goo.gl/maps/4aFwxcAQRYPo7dFU6)
