@@ -1,7 +1,7 @@
 # Patisserie Sectionals
 
 ## Schedule
-Friday 8am - Richmond Avery
+Friday 8am - Fredericksburg
 
 Friday 2pm - Howard C. Lee
 
@@ -9,7 +9,9 @@ Saturday 10am - Frederick
 
 Sunday 8am - Semi-finals
 
-Sunday 12pm - Finals
+Sunday 11am - Finals
+
+[source](https://docs.google.com/spreadsheets/d/e/2PACX-1vSmmpBNhcGqogsEL8qJn8sIh2VsLJKG2jOTP815M1gCb3iXuTttC-lrKQxlh3EbbTvKAcsLKd3o9geE/pubhtml)
 
 ## Info
 - **Midlothian Tennis Club** (clay courts) 
@@ -32,5 +34,9 @@ Sunday 12pm - Finals
 Address: 4421 Old Hundred Road South, Midlothian, VA 23112 ([map link](https://goo.gl/maps/GPow25DVWFRvLVae7) | [airbnb listing](https://www.airbnb.com/rooms/557265024316491405))
 
 Check-in: 4pm
+- Lock box is located on driveway entrance door 
+- Lock box code is 1984
 
 Check-out: 11am
+
+Wi-fi network: Verizon_QSG4DK | password: thump-did4-pray
