@@ -31,9 +31,7 @@ Sunday 8am - Semi-finals & Finals
 
 ## Airbnb
 
-15733 North 168th Ave
-
-Surprise, AZ 85388
+15733 North 168th Ave, Surprise, AZ 85388
 
 [map link](https://goo.gl/maps/sijiVUVn3qnzPY6q9) | [airbnb listing](https://www.airbnb.com/rooms/46117344)
 
@@ -52,4 +50,6 @@ Check-out: 10am
 - Turn off all lights, electronics, and appliances
 - Close and lock all windows and doors 
 
-Wi-fi network: setup-a655 | password: better3673eagle
+Wi-fi network: setup-a655 
+
+Wi-fi password: better3673eagle
