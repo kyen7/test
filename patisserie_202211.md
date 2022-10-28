@@ -25,18 +25,22 @@ Sunday 8am - Semi-finals & Finals
 - **Surprise Tennis & Racquet Complex**
 	- 14469 W Paradise Ln, Surprise, AZ 85374
 	- [map link](https://goo.gl/maps/K8Tq8ogjXRTac1Gs9)
-- Players will receive texts containing court assignments and link to report scores 
-- Only the winner of the match reports scores
-- Matches are NO AD scoring, serve gender-to-gender on deuce points, and 10-point tiebreak in place of a 3rd set (win by 2)
+- Captain and players will gather at tournament desk to get court assignments
 - Matches can start up to 30 min before official start time.
+- Match play: 5 min warm-up. Cell phones and electronics not allowed on court
+- Reporting scores: 1 player from each team needs to come together to report score at tournament desk. Players will initial when reporting scores. Both team captains must sign scorecard after all team matches are completed.
+- Matches are NO AD scoring, serve gender-to-gender on deuce points, and 10-point tiebreak in place of a 3rd set (win by 2) -- TBD
 - Live standings [link](https://tennislink.usta.com/Leagues/Main/StatsAndStandings.aspx?SearchType=0)
 - Results [link](https://www.usta.com/en/home/play/adult-tennis/programs/national/usta-league-national-championships-results.html)
 - Live scoreboard [link](TBD)
 - Water will be available onsite to refill water bottles as well as free bananas (while supplies last) and onsite small snack options for purchase. Ice will not be available from the food stand but you could get it from the trainer.
 - Inclement weather notices will be posted on [usta website](https://www.usta.com/en/home/play/adult-tennis/programs/national/about-usta-league-national-championships.html) and also emailed and texted to players
+- Championship handbook [link](https://www.usta.com/content/dam/usta/2022-pdfs/2022USTALeagueNationalMixed18Over7.0_9.0ChampionshipsHandbook.pdf)
 - Warm-up courts
 	- Kingswood Parke HOA Park [pin](https://goo.gl/maps/VGYHufAodB2CqeLA9)
 
+[Back to top](#)
+	
 ## Airbnb
 
 15733 North 168th Ave, Surprise, AZ 85388
