@@ -9,6 +9,8 @@
 [Airbnb](https://github.com/kyen7/test/blob/main/patisserie_202211.md#airbnb)
 
 ## Schedule
+Thursday 5-7pm - Team check-in and player social
+
 Friday 8am - Florida
 
 Friday 12pm - Texas
@@ -26,8 +28,8 @@ Sunday 8am - Semi-finals & Finals
 	- 14469 W Paradise Ln, Surprise, AZ 85374
 	- [map link](https://goo.gl/maps/K8Tq8ogjXRTac1Gs9)
 - Captain and players will gather at tournament desk to get court assignments
-- Matches can start up to 30 min before official start time.
-- Match play: 5 min warm-up. Cell phones and electronics not allowed on court
+- Matches can start up to 30 min before official start time
+- Match play: 5 min warm-up; cell phones and electronics not allowed on court
 - Reporting scores: 1 player from each team needs to come together to report score at tournament desk. Players will initial when reporting scores. Both team captains must sign scorecard after all team matches are completed.
 - Matches are NO AD scoring, serve gender-to-gender on deuce points, and 10-point tiebreak in place of a 3rd set (win by 2) -- TBD
 - Live standings [link](https://tennislink.usta.com/Leagues/Main/StatsAndStandings.aspx?SearchType=0)
@@ -47,7 +49,7 @@ Sunday 8am - Semi-finals & Finals
 
 [map link](https://goo.gl/maps/sijiVUVn3qnzPY6q9) | [airbnb listing](https://www.airbnb.com/rooms/46117344)
 
-Guest contact: Justin with Jireh Homeshare Group 623.498.0339 (jirehhsg@gmail.com)
+Guest contact: Justin with Jireh Homeshare Group 623-498-0339 (jirehhsg@gmail.com)
 
 Check-in: 4pm
 - Keyless entry code 9486
@@ -65,3 +67,5 @@ Check-out: 10am
 Wi-fi network: setup-a655 
 
 Wi-fi password: better3673eagle
+
+[Back to top](#)
