@@ -26,11 +26,15 @@ Sunday 8am - Semi-finals & Finals
 - Live scoreboard [link](TBD)
 - Water will be available onsite to refill water bottles as well as free bananas (while supplies last) and onsite small snack options for purchase. Ice will not be available from the food stand but you could get it from the trainer.
 - Inclement weather notices will be posted on [usta website](https://www.usta.com/en/home/play/adult-tennis/programs/national/about-usta-league-national-championships.html) and also emailed and texted to players
+- Warm-up courts
+	- Kingswood Parke HOA Park [pin](https://goo.gl/maps/VGYHufAodB2CqeLA9)
 
 ## Airbnb
 
 15733 North 168th Ave
+
 Surprise, AZ 85388
+
 [map link](https://goo.gl/maps/sijiVUVn3qnzPY6q9) | [airbnb listing](https://www.airbnb.com/rooms/46117344)
 
 Guest contact: Justin with Jireh Homeshare Group 623.498.0339 (jirehhsg@gmail.com)
