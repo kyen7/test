@@ -27,8 +27,8 @@ Sunday 8am - Semi-finals & Finals
 - **Surprise Tennis & Racquet Complex**
 	- 14469 W Paradise Ln, Surprise, AZ 85374
 	- [map link](https://goo.gl/maps/K8Tq8ogjXRTac1Gs9)
-- Captain and players will gather at tournament desk to get court assignments
-- Matches can start up to 30 min before official start time
+- Captain must submit line ups 30 minutes before match start time. Matches can start up to 30 min before official start time
+- Each pair will be called to the tournament desk to meet their opponent and to get court assignment
 - Match play: 5 min warm-up; cell phones and electronics not allowed on court
 - Scoring: normal (ad) scoring; 10-point tiebreak in place of a 3rd set (win by 2)
 - Reporting scores: 1 player from each team needs to come together to report score at tournament desk. Players will initial when reporting scores. Both team captains must sign scorecard after all team matches are completed.
