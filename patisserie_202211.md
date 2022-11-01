@@ -54,7 +54,7 @@ Guest contact: Justin with Jireh Homeshare Group 623-498-0339 (jirehhsg@gmail.co
 Check-in: 4pm
 - Keyless entry code 9486
 
-Check-out: 10am
+Check-out: 3pm ~~10am~~
 - Remove all perishable items
 - Take out the trash
 - Load and start the dishwasher
