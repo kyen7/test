@@ -42,6 +42,9 @@ Sunday 8am - Semi-finals & Finals
 - Championship handbook [link](https://www.usta.com/content/dam/usta/2022-pdfs/2022USTALeagueNationalMixed18Over7.0_9.0ChampionshipsHandbook.pdf)
 - Warm-up courts
 	- Kingswood Parke HOA Park [pin](https://goo.gl/maps/VGYHufAodB2CqeLA9)
+	- Valley Vista HS??
+	- Shadow Ridge HS??
+	- Dysart HS??
 
 [Back to top](#)
 	
