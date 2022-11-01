@@ -31,7 +31,7 @@ Sunday 8am - Semi-finals & Finals
 - Each pair will be called to the tournament desk to meet their opponent and to get court assignment
 - Match play: 5 min warm-up; cell phones and electronics not allowed on court
 - Scoring: normal (ad) scoring; 10-point tiebreak in place of a 3rd set (win by 2)
-- Reporting scores: 1 player from each team needs to come together to report score at tournament desk. Players will initial when reporting scores. Both team captains must sign scorecard after all team matches are completed.
+- Reporting scores: 1 player from each team needs to come together to report score at tournament desk. Players will initial when reporting scores. Both team captains must sign scorecard after all team matches are completed. [source](https://docs.google.com/document/d/1ZaOKwOAK0VkmKFO-_KGiO7v2CKPZUk846Ab257dK3vY/edit)
 - Live standings [link](https://tennislink.usta.com/Leagues/Main/StatsAndStandings.aspx?SearchType=0)
 - Results [link](https://www.usta.com/en/home/play/adult-tennis/programs/national/usta-league-national-championships-results.html)
 - Live scoreboard [link](TBD)
