@@ -26,7 +26,7 @@ Sunday 8am - Semi-finals & Finals
 ## Info
 - **Surprise Tennis & Racquet Complex**
 	- 14469 W Paradise Ln, Surprise, AZ 85374
-	- [map link](https://goo.gl/maps/K8Tq8ogjXRTac1Gs9)
+	- [Google map pin](https://goo.gl/maps/K8Tq8ogjXRTac1Gs9)
 	- [Facility map](https://docs.google.com/document/d/19-q7HbFupDSCqj8EfgJqjvRTj4VyqWd02B311rYiuzs/edit)
 	- 623-222-2400
 - Captain must submit line ups 30 minutes before match start time. Matches can start up to 30 min before official start time
