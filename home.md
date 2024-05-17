@@ -22,7 +22,7 @@ Use this pin to find parking: https://maps.app.goo.gl/LLCEKciP8CrdLEQN6
 
 Street parking along Porter St is free weeknights and on weekends, but street parking close to the gas station is metered. If you drive downhill along Porter St, there is a lot of free street parking. 
 
-If you're having trouble finding street parking on Porter St, you can continue onto Porter St on the West side of Connecticut Ave and it should be easy to find street parking in the neighborhood. Use this address as a secondary parking location: 3025 Porter St NW
+If you're having trouble finding street parking on Porter St, you can continue onto Porter St on the West side of Connecticut Ave and it should be easy to find street parking in the neighborhood. Use this address as a secondary parking location: [3025 Porter St NW](https://maps.app.goo.gl/cuyyWxDpJRxXp2jL6)
 
 ## By rideshare
 
