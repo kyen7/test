@@ -19,6 +19,7 @@ Get off at Cleveland Park station (red line). Turn right after getting off the e
 ## By car
 
 Street parking along Quebec St: https://maps.app.goo.gl/wVkCrwxBuVAHqUGV6
+
 Free weeknights and weekends. This street can be a bit narrow when cars are parked along both sides.
 
 Street parking along Porter St: https://maps.app.goo.gl/LLCEKciP8CrdLEQN6
