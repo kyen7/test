@@ -6,7 +6,7 @@
 
 Washington, DC 20008
 
-My building has entrances on Quebec St and Porter St. Quebec St has a lot of construction right now, so I suggest entering through Porter St.
+My building has entrances on Quebec St and Porter St. Sorry, the Porter St entrance might be a bit stinky. 
 
 I am on the 11th floor.
 
@@ -14,11 +14,14 @@ I am on the 11th floor.
 
 ## By metro
 
-Get off at Cleveland Park station (red line). Turn right after getting off the extra long escalators. When you are on street level, walk towards the gas station behind you. Turn right and walk downhill along Porter St. My building is a large red brick building on the left and there is a large pink purple flowery "Welcome" sign.
+Get off at Cleveland Park station (red line). Turn right after getting off the extra long escalators. When you are on street level, walk towards the gas station behind you. You should reach a fork-like situation and there's a Jewish temple diagonal to your right. Cross the street onto Quebec St; the temple should be on your right. My building is behind the temple's parking lot on your right. You will walk downhill toward my buliding's entrance. 
 
 ## By car
 
-Use this pin to find parking: https://maps.app.goo.gl/LLCEKciP8CrdLEQN6
+Street parking along Quebec St: https://maps.app.goo.gl/wVkCrwxBuVAHqUGV6
+Free weeknights and weekends. This street can be a bit narrow when cars are parked along both sides.
+
+Street parking along Porter St: https://maps.app.goo.gl/LLCEKciP8CrdLEQN6
 
 Street parking along Porter St is free weeknights and on weekends, but street parking close to the gas station is metered. If you drive downhill along Porter St, there is a lot of free street parking. 
 
