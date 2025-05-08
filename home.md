@@ -14,7 +14,7 @@ I am on the 11th floor.
 
 ## By metro
 
-Get off at Cleveland Park station (red line). Turn right after getting off the extra long escalators. When you are on street level, walk towards the gas station behind you. You should reach a fork-like situation and there's a Jewish temple diagonal to your right. You want to cross the street onto Quebec St and walk towards the temple. The temple should be on your right. My building is behind the temple's parking lot on your right. You will walk downhill toward my buliding's entrance. 
+Get off at Cleveland Park station (red line). Turn right after getting off the extra long escalators. When you are on street level, walk towards the gas station behind you. You should reach a fork-like situation and there's a Jewish temple diagonal to your right. You want to cross the street onto Quebec St and walk towards the temple. The temple should be on your right. My building is behind the temple's parking lot on your right. You will walk downhill toward my building's entrance. 
 
 ## By car
 
